@@ -1,1 +1,1 @@
-* Use anteaters to clean up kitchen
+* Use anteaters to clean up rooms
